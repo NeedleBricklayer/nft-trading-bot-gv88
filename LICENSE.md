@@ -1,4 +1,4 @@
-# 
+# advanced NFT Trading Bot for nft trading bot | metadata-parsing & volume-analysis is the best nft trading bot, featuring metadata-parsing and volume-analysis. Fast, smart, and
 
 
 
